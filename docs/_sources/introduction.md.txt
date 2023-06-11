@@ -1,0 +1,3 @@
+# Introduction à la garde de Titus
+
+Titus, notre fidèle compagnon Epagneul Breton, est un membre important de notre famille. Cependant, il peut arriver que nous ayons besoin de nous absenter et de confier Titus à un dog-sitter de confiance. Lorsque nous confions la garde de Titus à quelqu'un d'autre, il est essentiel de nous assurer que toutes ses besoins sont pris en compte et qu'il reçoit les meilleurs soins en notre absence. Cette section vous guidera à travers les étapes importantes de la garde de Titus, en vous fournissant des conseils pratiques pour vous assurer que notre chien bien-aimé est entre de bonnes mains et qu'il reste heureux et épanoui pendant notre absence.
